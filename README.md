@@ -17,7 +17,7 @@ CMJDXLCJX0
 Data Analyst  
 
 ## DURATION
-4 Weeks  
+3 Months  
 
 ## MENTOR
 NEELA SANTOSH  
